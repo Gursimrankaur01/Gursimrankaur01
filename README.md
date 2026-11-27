@@ -1,4 +1,4 @@
-# Hi, I'm Simran 👋
+# Hi, I'm Gursimran 👋
 
 ### AI-enabled Supply Chain & Business Analytics
 
